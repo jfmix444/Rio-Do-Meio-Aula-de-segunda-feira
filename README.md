@@ -1,0 +1,2 @@
+# Rio-Do-Meio-Aula-de-segunda-feira
+PROJETO PENSAMENTO COMPUTACIONAL DO COLÉGIO RIO DO MEIO 
